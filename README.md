@@ -1,4 +1,4 @@
-![Home](https://github.com/user-attachments/assets/6519e22d-1179-40a7-8d1d-97b0dfd5186d)
+![Home](https://github.com/user-attachments/assets/1fbcb9ff-9467-429c-b556-def421b35053)
 ![About Me](https://github.com/user-attachments/assets/d5c0231a-31da-496b-b81d-97a882590f0a)
 ![Education](https://github.com/user-attachments/assets/3a24efbf-dd10-47b6-b062-9064dadd0507)
 ![Course Wrapped Up](https://github.com/user-attachments/assets/7720ceaf-0cd8-4b5b-baec-95faa2e454a5)
