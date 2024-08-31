@@ -4,7 +4,7 @@
 ![Course Wrapped Up](https://github.com/user-attachments/assets/7720ceaf-0cd8-4b5b-baec-95faa2e454a5)
 ![Programming Language](https://github.com/user-attachments/assets/909da3d6-e9da-4763-b032-f3c178dba97d)
 ![Portfolio](https://github.com/user-attachments/assets/fa4bbc60-2829-4ac7-8e0a-8e27c4e39f17)
-![Portfolio](https://github.com/user-attachments/assets/d8a88599-2c22-4fae-8ad9-1cb6f2905d94)
+![Workshop](https://github.com/user-attachments/assets/6b270ff5-df94-4c1b-ab1e-d3d379080b1e)
 ![Contact](https://github.com/user-attachments/assets/aa55ab22-9a23-4875-9a1d-f1ae1978db31)
 
 
